@@ -1,1 +1,1 @@
-Collab Training by DNC
+Collab Training
